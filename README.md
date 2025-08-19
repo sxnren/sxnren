@@ -1,5 +1,5 @@
 <div align="center">
-  <img height="400" src="https://media.discordapp.net/attachments/1073707639130820670/1407144430183645284/image.png?ex=68a5b19f&is=68a4601f&hm=96281690779b4137434f2ee0cabd7f71f1b59f4a487ca26d4f408d7df2a8868c&=&format=webp&quality=lossless"  />
+  <img height="600" src="https://media.discordapp.net/attachments/1073707639130820670/1407144430183645284/image.png?ex=68a5b19f&is=68a4601f&hm=96281690779b4137434f2ee0cabd7f71f1b59f4a487ca26d4f408d7df2a8868c&=&format=webp&quality=lossless"  />
 </div>
 
 ###
@@ -23,7 +23,7 @@
 ###
 
 <div align="center">
-  <img height="80" src="https://media.discordapp.net/attachments/1073707639130820670/1407494030610403328/image.png?ex=68a64e76&is=68a4fcf6&hm=e2a308090752717cf5eebd01743948285231c3ea45f5e1c825079f513bef74a0&=&format=webp&quality=lossless&width=1318&height=169"  />
+  <img height="80" src="https://media.discordapp.net/attachments/1073707639130820670/1407493639625768960/image.png?ex=68a64e19&is=68a4fc99&hm=e148ad29ed38d8a0e64f57d7cbd5e41345b36c1814c883303c0b9094ee275111&=&format=webp&quality=lossless&width=1318&height=169"  />
 </div>
 
 ###

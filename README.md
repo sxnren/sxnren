@@ -18,7 +18,7 @@
 
 ###
 
-<p align="center">𝒞　˳　I have a lot of nicknames, but i prefer that you call me Hea (short for Heaven) or Soren. ⠀ ݁⠀⠀⠀⠀ 𓂂<br><br>➼⠀I play the guitar, the acoustic one, wish i had an electric one ngl. My dream is to be the lead guitar in a band, hope it happens.<br><br>𓈒⠀｡ My pronouns are HeﾉThey, please use them correctly ^^<br><br>✚ིㅤㅤ ݃ ㅤSome games that i usually play are pjsk, TBOI, Minecraft, Roblox, Genshin Impact and Honkai Star Rail.<br><br>﹒⠀︶꒡꒤⠀Some bands that i listen to are The Strokes, Guns n' Roses, Metallica, AC/DC, System of a down, Black Sabbath, Queen, and a lot of rock.<br><br><br>⺌﹒ㄑIdk what else to say about me. Thank you very much for reading! (if you did)</p>
+<p align="center">𝒞　˳　I have a lot of nicknames, but i prefer that you call me Hea (short for Heaven) or Soren. ⠀ ݁⠀⠀⠀⠀ 𓂂<br><br>➼⠀I play the guitar, the acoustic one, wish i had an electric one ngl. My dream is to be the lead guitar in a band, hope it happens.<br><br>𓈒⠀｡ My pronouns are HeﾉThey, please use them correctly ^^<br><br>✚ིㅤㅤ ݃ ㅤSome games that i usually play are pjsk, TBOI, Minecraft, Roblox, Genshin Impact and Honkai Star Rail.<br><br>﹒⠀︶꒡꒤⠀Some bands that i listen to are The Strokes, Guns n' Roses, Metallica, AC/DC, System of a down, Black Sabbath, Queen, etc.<br><br><br>⺌﹒ㄑIdk what else to say about me. Thank you very much for reading! (if you did)</p>
 
 ###
 

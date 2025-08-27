@@ -1,5 +1,5 @@
 <div align="center">
-  <img height="300" src="https://media.discordapp.net/attachments/1073707639130820670/1407144430183645284/image.png?ex=68a5b19f&is=68a4601f&hm=96281690779b4137434f2ee0cabd7f71f1b59f4a487ca26d4f408d7df2a8868c&=&format=webp&quality=lossless"  />
+  <img height="300" src="https://camo.githubusercontent.com/c5aa0349784f4b14bade7ab458555fa9fbc35f1ccfffd43e29e56d5da6861955/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313037333730373633393133303832303637302f313430373134343433303138333634353238342f696d6167652e706e673f65783d36386135623139662669733d363861343630316626686d3d39363238313639303737396234313337343334663265653063616264376637316631623539663461343837636132366434663430386437646632613838363863263d26666f726d61743d77656270267175616c6974793d6c6f73736c657373"  />
 </div>
 
 ###
@@ -9,25 +9,7 @@
 ###
 
 <div align="center">
-  <img height="600" src="https://media.discordapp.net/attachments/1073707639130820670/1407144303976775762/image.png?ex=68a5b181&is=68a46001&hm=c6a777910b9df83fb06fc6dac8dedb94c9d6374adf7e4330b538cb34d8c73309&=&format=webp&quality=lossless"  />
+  <img height="500" src="https://camo.githubusercontent.com/b9945cb8a43eaa7e0cc7a055be97e9a1bea5c3c2d6ee5b4c6d7123c8c09bc54f/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313037333730373633393133303832303637302f313430373134343330333937363737353736322f696d6167652e706e673f65783d36386135623138312669733d363861343630303126686d3d63366137373739313062396466383366623036666336646163386465646239346339643633373461646637653433333062353338636233346438633733333039263d26666f726d61743d77656270267175616c6974793d6c6f73736c657373"  />
 </div>
-
-###
-
-<p align="center">͝ ꒡⠀† ݁ ⠀︶ ⏝⏝ ⠀Λ𝗯ꪮᴜƬ⠀ꪑᏋ⠀ ⏝⏝ ︶⠀ ݁ †⠀꒡ ͝</p>
-
-###
-
-<p align="center">𝒞　˳　I have a lot of nicknames, but i prefer that you call me Hea (short for Heaven) or Soren. ⠀ ݁⠀⠀⠀⠀ 𓂂<br><br>➼⠀I play the guitar, the acoustic one, wish i had an electric one ngl. My dream is to be the lead guitar in a band, hope it happens.<br><br>𓈒⠀｡ My pronouns are HeﾉThey, please use them correctly ^^<br><br>✚ིㅤㅤ ݃ ㅤSome games that i usually play are pjsk, TBOI, Minecraft, Roblox, Genshin Impact and Honkai Star Rail.<br><br>﹒⠀︶꒡꒤⠀Some bands that i listen to are The Strokes, Guns n' Roses, Metallica, AC/DC, System of a down, Black Sabbath, Queen, etc.<br><br><br>⺌﹒ㄑIdk what else to say about me. Thank you very much for reading! (if you did)</p>
-
-###
-
-<div align="center">
-  <img height="80" src="https://media.discordapp.net/attachments/1073707639130820670/1407494030610403328/image.png?ex=68a64e76&is=68a4fcf6&hm=e2a308090752717cf5eebd01743948285231c3ea45f5e1c825079f513bef74a0&=&format=webp&quality=lossless&width=1318&height=169"  />
-</div>
-
-###
-
-<p align="center">𝒞redits⠀𓏶<br> 𝜗୧⠀⠀⠀𓈒⠀Banner, pfp & image not mine. Creds to @kanagraphic on tumbrl ۪<br>‿‿ Divider not mine. Creds to @huraxy on tumbrl.</p>
 
 ###

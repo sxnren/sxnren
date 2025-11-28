@@ -3,3 +3,11 @@
 </div>
 
 ###
+
+<p align="center">Welcome⠀to⠀white⠀space.⠀⠀⠀୨᭪</p>
+
+###
+
+<p align="center">You⠀have⠀been⠀living⠀here⠀for<br>as⠀long⠀as⠀you⠀can⠀remember.<br><br><br><br>₊　　།†　　　ᵒ⠀ʸ⠀ᵃ⠀ˢ⠀ᵘ⠀ᵐ⠀ⁱ　　　　.　'</p>
+
+###

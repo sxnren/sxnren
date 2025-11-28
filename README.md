@@ -8,11 +8,11 @@
 
 ###
 
-<p align="center">You⠀have⠀been⠀living⠀here⠀for<br>as⠀long⠀as⠀you⠀can⠀remember.<br><br><br><br><br>₊　　།†　　　ᵒ⠀ʸ⠀ᵃ⠀ˢ⠀ᵘ⠀ᵐ⠀ⁱ　　　　.　'</p>
+<p align="center">You⠀have⠀been⠀living⠀here⠀for<br>as⠀long⠀as⠀you⠀can⠀remember.<br><br><br><br><br>₊　　　　།†　　　　ᵒ⠀ʸ⠀ᵃ⠀ˢ⠀ᵘ⠀ᵐ⠀ⁱ　　　　.　'</p>
 
 ###
 
-<img align="left" height="200" src="https://media.discordapp.net/attachments/1073707639130820670/1443818021805097031/1764303050894.png?ex=692a73d1&is=69292251&hm=783863ef07c0fe1a6832fe46b605f6a7fbbc9f37cc2506f94e52564625c4fd1b&=&format=webp&quality=lossless&width=208&height=545"  />
+<img align="left" height="120" src="https://media.discordapp.net/attachments/1073707639130820670/1443818021805097031/1764303050894.png?ex=692a73d1&is=69292251&hm=783863ef07c0fe1a6832fe46b605f6a7fbbc9f37cc2506f94e52564625c4fd1b&=&format=webp&quality=lossless&width=208&height=545"  />
 
 ###
 

@@ -12,7 +12,7 @@
 
 ###
 
-<img align="left" height="120" src="https://media.discordapp.net/attachments/1073707639130820670/1443818021805097031/1764303050894.png?ex=692a73d1&is=69292251&hm=783863ef07c0fe1a6832fe46b605f6a7fbbc9f37cc2506f94e52564625c4fd1b&=&format=webp&quality=lossless&width=208&height=545"  />
+<img align="left" height="120" src="https://cdn.discordapp.com/attachments/1073707639130820670/1443818021209772186/1764303413948.png?ex=695dde51&is=695c8cd1&hm=39ce4e81587de6f39bcb7cb7f130c6b0dd6a60e469099b3f0a3093d6bc9ea067&width=208&height=545"  />
 
 ###
 

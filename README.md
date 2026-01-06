@@ -12,10 +12,10 @@
 
 ###
 
-<img align="left" height="120" src="https://cdn.discordapp.com/attachments/1073707639130820670/1443818021209772186/1764303413948.png?ex=695dde51&is=695c8cd1&hm=39ce4e81587de6f39bcb7cb7f130c6b0dd6a60e469099b3f0a3093d6bc9ea067&width=208&height=545"  />
+<img align="left" height="120" src="https://media.discordapp.net/attachments/1073707639130820670/1443818021805097031/1764303050894.png?ex=695dde51&is=695c8cd1&hm=017a8c192f36d17902ec756c0b314606b7ea5c463f3fad6c0ea11016ed0b7e51&=&format=webp&quality=lossless&width=208&height=544"  />
 
 ###
 
-<img align="right" height="120" src="https://media.discordapp.net/attachments/1073707639130820670/1443818021209772186/1764303413948.png?ex=692a73d1&is=69292251&hm=81d571e28a47371e74bc1dd3f3b0589729b0f84458d3d552b234cba5a6472281&=&format=webp&quality=lossless"  />
+<img align="right" height="120" src="https://cdn.discordapp.com/attachments/1073707639130820670/1443818021209772186/1764303413948.png?ex=695dde51&is=695c8cd1&hm=39ce4e81587de6f39bcb7cb7f130c6b0dd6a60e469099b3f0a3093d6bc9ea067&"  />
 
 ###
